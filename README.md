@@ -1,1 +1,0 @@
-# Integrated_student_management
